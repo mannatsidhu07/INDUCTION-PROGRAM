@@ -1,5 +1,5 @@
 # INDUCTION-PROGRAM
-Name: Mannat Sidhu<br>
+<p align=center>Name: Mannat Sidhu<br>
 Father’s Name: Kulpreet Singh Sidhu<br>
 Branch: ECE<br>
 Registration Number: 25102046<br>
@@ -8,7 +8,7 @@ Email: mannatsidhu202020@gmail.com<br>
 Photograph:<br><br>
 
  <br><br>
-
+</p>
 # Day 1
 ## 30 July 2025
 Today at **GNDEC, Ludhiana**, I embarked on a journey of new learnings; a new and very important phase of my life that I’ll remember throughout the coming years of my life. A journey in which I’ll achieve a lot and at the end with the insights of my teachers I’ll succeed. <br><br>
