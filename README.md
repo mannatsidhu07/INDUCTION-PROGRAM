@@ -1,9 +1,18 @@
 # INDUCTION-PROGRAM
-Mannat Sidhu [B.tech ECE]
+Name: Mannat Sidhu<br>
+Father’s Name: Kulpreet Singh Sidhu<br>
+Branch: ECE<br>
+Registration Number: 25102046<br>
+Mobile Number: 99150-68493<br>
+Email: mannatsidhu202020@gmail.com<br>
+Photograph:<br><br>
+
+ <br><br>
+
 # Day 1
 ## 30 July 2025
 Today at **GNDEC, Ludhiana**, I embarked on a journey of new learnings; a new and very important phase of my life that I’ll remember throughout the coming years of my life. A journey in which I’ll achieve a lot and at the end with the insights of my teachers I’ll succeed. <br><br>
-The ceremony began at college **Gurudwara Sahib** with recitation of **Japji Sahib**, the bani written by Guru Nanak Dev Ji after whom the college is named, after this, the following shabads were recited :<br>
+The ceremony began at college **Gurudwara Sahib** with recitation of **Japji Sahib**, the bani written by Guru Nanak Dev Ji after whom the college is named, after this, the following shabads were recited :<br><br> <p align=center>
 1."ਹੇ ਗੋਬਿੰਦ ਹੇ ਗੋਪਾਲ ਹੇ ਦਇਆਲ ਲਾਲ ॥੧॥ ਰਹਾਉ ॥"<br>
 O Lord of the Universe, O Lord of the World, O Dear Merciful Beloved. ||1||Pause||<br><br>
 2. "ਇਕ ਅਰਦਾਸਿ ਭਾਟ ਕੀਰਤਿ ਕੀ ਗੁਰ ਰਾਮਦਾਸ ਰਾਖਹੁ ਸਰਣਾਈ ॥੪॥੫੮॥"<br>
@@ -11,9 +20,9 @@ Keerat the poet offers this one prayer: O Guru Raam Daas, save me! Take me into 
 3. "ਸੁੰਦਰ ਸੋਭਾ ਲਾਲ ਗੋਪਾਲ ਦਇਆਲ ਕੀ ਅਪਰ ਅਪਾਰਾ ਰਾਮ ॥"<br>
 The Glory of the Beloved, Merciful Lord of the Universe is beautiful; He is infinite and without limit.<br><br>
 4. "ਤੁਮ ਮਾਤ ਪਿਤਾ ਹਮ ਬਾਰਿਕ ਤੇਰੇ ॥<br>
-You are our mother and father; we are Your children.<br><br>
+You are our mother and father; we are Your children.<br><br> </p>
 Very beautifully sung by the kirtani jatha, these shabads filled the environment with **calmness** the first day anxiety just vanished; **a perfect start** for the day. Later on, all the students were advised to stay connected to God and visit gurudwara sahib on a regular basis to get the **positive energy**. Ardaas for good future of our batch was recited, followed by **hukumnama** whose main lines were:<br><br>
-"ਇਕ ਅਰਦਾਸਿ ਭਾਟ ਕੀਰਤਿ ਕੀ ਗੁਰ ਰਾਮਦਾਸ ਰਾਖਹੁ ਸਰਣਾਈ ॥੪॥੫੮॥“<br><br>
+<p align=center>"ਇਕ ਅਰਦਾਸਿ ਭਾਟ ਕੀਰਤਿ ਕੀ ਗੁਰ ਰਾਮਦਾਸ ਰਾਖਹੁ ਸਰਣਾਈ ॥੪॥੫੮॥“<br><br></p>
 This was followed by a **small snack and tea break** at hostel no. 2 (the gulab jamun was delicious!). After this we all went to the auditorium. The anchor for induction program was **Ms. Taranpreet**, she opened the function and invited a senior from GNDEC, **Mr. Harsimran**, who congratulated GNDEC for completing **70 years of excellence** and extended a warm welcome to the students and gave a power point presentation that included history of GNDEC and what programs, extra curriculars etc. college has to offer.<br>
 Next up we had **Ex- PAU professor, also an alumni of GNDEC Dr. KD** who described the importance of the college and how we all should **pay attention to the name after which this college is named.** He wanted to convey through his words that staying **spiritually connected** is also as important as all the other things in life while giving a strong **emphasis on “Guru Nanak Dev”**.<br><br>
 **HOD Applied Sciences department, Dr. Harpreet Kaur Grewal Ma’am** opened with heartfelt congratulations and also created an **enthusiastic environment** in the auditorium by making the students clap for their own success upon reaching a great milestone in life. She further elaborated the words of prof. KD and described how to **eliminate negativity.** She made the children familiar with the thought that there **ought to be ups and downs** in life but nobody shall feel resented and shall bounce back stronger every time. She laid strong emphasis on the **importance of “freedom with boundaries”** which I think is a great thought and something I had never heard any other teacher talking about, though I have been practicing it since long.<br><br>
@@ -36,10 +45,28 @@ After the break we attended **English lecture by Prof. Aastik Sharma**, he asked
 A great day overall. This is the **foundation for our 4 years of college**. They are training us on how to listen and understand, how to interact and how to develop a sitting for long hours which is a **great initiative** and is commendable. The sense of familiarity that is being built in these days would’ve taken weeks otherwise.<br><br>
 # Day 4
 ## 05/08/2025
-Today, our classes were to start at 1:30 pm and the first class got cancelled due to a placement drive in the auditorium. So, instead of going to the auditorium we sat in classrooms where seniors came for interactive sessions.<br><br>
-For the next slot we were asked to go to auditorium for a lecture by Mrs. Shaffy Makkar ma’am on the topic “Millets: A Superfood”. This session was very interesting because who in this age doesn’t have some health issue going on. In this modern age where people are inclined towards sacrificing their sleep and meals to gain a few extra notes, it is of utmost importance to look after our consumption. If the diet keeps degrading, number of working hours keep increasing and work load takes a huge toll, we can never be at full potential. Ignoring our diet and exercise just to become a rat who runs after money is something nobody wants but gets caught up in the cycle and cannot escape afterwards. Millets play a pivotal roll in shaping our diets due to their rich protein and mineral content. Ma’am had described how to inculcate millets into our routine diet, cooking methods and the bad impact of wheat and rice (negative millets) on our daily being. She told us about the types of millets, what nutrients they a provide etc. It was a great lecture and very insightful if someone wants to inculcate veg protein in their diet and receive the maximum amount of dietary fibre.<br><br>
+Today, our classes were to start at 1:30 pm and the first class got cancelled due to a placement drive in the auditorium. So, instead of going to the auditorium we sat in classrooms where **seniors came for interactive sessions.**<br><br>
+For the next slot we were asked to go to auditorium for a lecture by **Mrs. Shaffy Makkar ma’am on the topic “Millets: A Superfood”.** This session was very **interesting** because who in this age doesn’t have some health issue going on. In this modern age where people are inclined towards **sacrificing their sleep and meals** to gain a few extra notes, it is of **utmost importance to look after our consumption.** If the **diet keeps degrading,** number of working hours keep increasing and work load takes a huge toll, we can never be at **full potential.** Ignoring our diet and exercise just to become a rat who runs after money is something nobody wants but gets caught up in the cycle and cannot escape afterwards. **Millets play a pivotal roll** in shaping our diets due to their **rich protein and mineral** content. Ma’am had described how to inculcate **millets into our routine diet, cooking methods and the bad impact of wheat and rice** (negative millets) on our daily being. She told us about the types of millets, what nutrients they a provide etc. It was a great lecture and very insightful if someone wants to **inculcate veg protein** in their diet and receive the **maximum amount of dietary fibre.**<br><br>
 # Day 5
 ## 06/08/2025
+Day started at auditorium with **chanting of Mool Mantra** followed by **Dr. Parminder Singh, Dean student welfare.** He made us aware about **all the societies, clubs and amenities that college offers.** This session was very **informative** and increased the familiarity with college.<br><br>
+**Mr. Manpreet Singh** joined us next. He gave a very interesting and insightful lecture on the topic **“Fitness for Engineers”.** He described the bad impact of **unhealthy diet and drug addiction** on youth. He requested all the students to **never touch alcohol** or any other substances that pollute our body. Later on, a lot of students asked their queries about usage of **whey protein and steroids**, to which sir gave very clear and **powerful insights.** He further told us why **exercising** as engineers is of **utmost importance** along with a good diet while telling his **own story of how he rose from ashes** to this stage.<br><br>
+**Brigadier P. S. Cheema** sir addressed the students after a **short NCC lecture.** He used great **poetry lines** about patriotism and humility to convey his words that **touched our hearts.** He also motivated us to join NCC and raised a few concerns on the direction towards which today’s youth is drifting.<br><br>
+We had a **physics lecture by Prof. Amarjot Kaur** and to end the day **Mr. Gautam from ME-D4** gave us a lecture on **automobiles** and described in detail how automobiles and motorsports include the usage of all the streams of engineering. **CSE** to get the performance graphs through the sensors made by **ECE** engineers. Roads well engineered by **CE’s** to run the cars designed by **ME’s**.<br><br>
+My favourite part of the day was lecture by Mr. Manpreet Singh, it was **truly inspiring** and motivated the students to **listen to what their heart says** and to work in that direction.<br><br>
+# Day 6
+## 07/08/2025
+The day started with classes today. First lecture was by **Prof. Komalpreet Kaur**, she started with some basic introduction about the **lasers chapter** and it was a wonderful session, I understood everything so well, she **truly is a great teacher.** <br><br>
+**Prof. Sandeep Kaur Gill** took our **maths** lecture. We discussed about **differentiation and basic calculus from class 12** and then later she proceeded to ask conceptual questions about differentiation and I answered like 4 or 5 questions, all correct. I realised in class that even if I might’ve scored less in maths in boards but I have a really good grasp of some core concepts that even high scorers in the classroom failed to answer.<br><br>
+After an hourlong break, we headed to the auditorium, The students were addressed by **Dr. Lakhvir Singh Khana, in-charge of centre for multifaceted learning (CML)**, who began with applauding the **enthusiasm of students** and their choice of core branches. He proceeded to explain that CML conducts all **type of activities** except cultural and sports related events to push the **holistic development** of students. He interacted a lot with students and the lecture didn’t even feel like a lecture, it felt like a talk with an individual who wants to do good for us; truly inspiring. At the end of his lecture, he told us all about **NPTEL’s courses in collaboration with the original 7 IIT’s**, that will prove to be really beneficial for us. The session was concluded after giving students a demo on how to make a profile on **Swayam** website to join NPTEL’s courses.<br><br>
+**Dr. Jasvir Singh Grewal, in-charge of NSS** hosted the concluding event. This event started with recitation of a shabad written by **Guru Arjan Dev Ji in raag Kalyan:**<br><br>
+<p align=center>"ਮੇਰੇ ਲਾਲਨ ਕੀ ਸੋਭਾ ॥"<br>
+"O, the Wondrous Glory of my Beloved!"<br><br></p>
+Very beautifully sung by the students, it filled our hearts with **peace** and after recitation of this shabad, sir described that this feeling of peace is what you get when **you work for others and help them**. He described that this exactly, is the goal of NSS and then the students proceeded to perform a **beautiful Sanskrit raag** with the wording:<br><br>
+“रैना बीती जाये, श्याम ना आये |”<br><br>
+This was followed by a video from **Midway island.** The video described that this island situated in the **heart of pacific was 3000 miles from the continent closest to it.** This video began with showing diversity of birds flying across the vast landscape happily cooing their birdsong on the other hand, towards the end of this video, it was shown how water pollution due to plastic and e-waste affected these birds. Clips of 10-20 plastic caps being taken out of dead bodies of the birds were shown and at the end sir told us that this is what we want to prevent, **the goal of NSS is to reverse the environmental damage** being committed by human beings. Later on, we played a **fun game** where the auditorium was divided into two sections and one child was chosen from each section. Both of them were invited on the stage and were asked to make each other laugh within 60 seconds but unfortunately none succeeded although we had a lot of fun. After this, two members of the NSS club itself gave **a performance that made the whole crowd **chuckle.**<br><br>
+After the first day, this was the second-best day of this orientation program with a **perfect balance of fun, laughter, visions and insights.**<br><br>
+
 
 
 
