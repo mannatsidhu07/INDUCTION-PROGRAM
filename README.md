@@ -79,6 +79,42 @@ After the first day, this was the second-best day of this orientation program wi
 Today was a small session, the **Mathemagic club** members had opened with the introduction of their club and a competition that they will be organising named *"Synergy"* on 6th September. They emphasised that maths is an essential subject for all engineering subjects, so **why not learn it in a fun way.**<br><br>
 Next we were joined by members of **English Club**, they explained how their club works and what their club helps students with, i.e. **building confidence and maintaining an overall personality.** They had this very fun game of guessing the **meanings of GEN-Z words like tea, yaas** and many more, it was so fun, the whole auditorium was hit by a **wave of laughter.**<br><br>
 Next was a lecture by **Mr. Jitendra from Ikigai school of technology** for their course in **AI** and Data science. He gave a detailed lecture on growing **importance of AI in the modern world.** He also described how anybody who has no knowledge of AI will be replaced by someone who has knowledge of AI in big companies; so it is very important for our generation to learn AI. <br><br>
+# Day 8
+## 30/08/2025
+The session started with **recitation of Mool mantra**, initiated by Mrs. Harpreet. Next came **Mr. Arsh, a professor in food processing dept. of PAU, Ludhiana.** He explained how different food affect our body and what foods provide the **best nourishment.** He explained that things we see on social media; **90% are just food myths.** He said wheat cannot be completely replaced by wheat in your daily diet as you've been consuming wheat since you were kids. He further added that its **not important for the children to be hard on themselves** by putting too many food restrictions; but it is important that we all are **aware of how much quantity of each thing we should consume.**
+<br><br>
+<div align="center">
+<img src="Mr. Arsh (PAU) and Mr. Jaswinder.jpg" height=300 width=500>
+</div>
+<br><br>
+
+Arsh sir's lecture was followed by a **very fun lecture by Mr. Jaswinder.** This was a very interactive session with loads of **practical knowledge and laughs.** Mr. Jaswinder is a teacher well known for his project **"Jaswin's lab on wheels".** He started by calling a few kids on stage and asking them to add ten number and later proceeded to give a shortcut to solve the problem within 2 seconds that would otherwise take 2 minutes. He said that **god is present in everything** and whoever recites his name, gains strength and money; but the one who is greedy and chases money, neither attains peace nor gets enough money ever; sir also **proved this with an experiment** where he asked students to write down 3 digit numbers on the board, then reverse them and subtract the reversed number from original number; the end result always comes out as 9; which in Punjabi stands for name; **god's name.** He also made a **rocket using a water bottle** that amused everbody.
+<br><br>
+<div align="center">
+<img src="With jaswinder sir.jpg" width=500 height=300>
+</div>
+<br><br>
+
+**I was also called upon stage** by sir and he asked me how many bones are there in human body to which I answered correctly, 206. He further went on and made us learn how many bones are there in all parts of our body. I also **got a pencil as a reward** for participation.
+<br><br>
+<div align="center">
+<img src="Rocket with plastic bottle.jpg" height=300 width=500>
+<br><br>
+</div>
+
+Next came **Riya Arora ma'am, director of Maac, Ludhiana.** She's working towards **bringing up talent from across Punjab** and wants to prove that even Punjab has a lot of talent. That is what she talked about in the session.
+<br><br>
+<div align="center">
+<img src="Riya Arora mam.jpg" height= 400 width 500>
+</div>
+<br><br>
+
+This was followed by a small introduction of the **Mathemagic club** and then **English club members performed a small skit** showcasing a situation of an interview where the person with fluent speaking skills gets selected and the other one despite having good academics, gets rejected due to bad English speaking skills. Then came students of **Chemovat society**/Chemistry club and they also gave a brief of their activities out of which the one that interested me most was their **free tuitions for underprivileged students**; very nice initiative.<br><br>
+<div align="center">
+<img src="Enlgish Club Skit.jpg" width=500 height=400> 
+</div>
+<br><br> 
+
 
 
 
